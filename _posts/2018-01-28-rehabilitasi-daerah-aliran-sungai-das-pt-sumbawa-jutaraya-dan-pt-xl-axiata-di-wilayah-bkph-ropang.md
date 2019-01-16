@@ -1,0 +1,18 @@
+---
+ID: 1560
+post_title: >
+  Rehabilitasi Daerah Aliran Sungai (DAS)
+  PT. Sumbawa Jutaraya dan PT. XL Axiata
+  di wilayah BKPH Ropang
+author: dislhk
+post_excerpt: ""
+layout: post
+permalink: >
+  https://dislhk.ntbprov.go.id/2018/01/28/rehabilitasi-daerah-aliran-sungai-das-pt-sumbawa-jutaraya-dan-pt-xl-axiata-di-wilayah-bkph-ropang/
+published: true
+post_date: 2018-01-28 08:56:45
+---
+<p style="text-align: justify;">Kawasan Hutan, selain dimanfaatkan untuk kegiatan sektor kehutanan seperti pemanfaatan hasil hutan kayu dan bukan kayu, juga bisa dipergunakan untuk kegiatan di luar sektor kehutanan seperti pembangunan jalan, fasilitas umum, pertambangan, jaringan komunikasi, dll. Untuk penggunaan di luar sektor kehutanan ini, diatur melalui Ijin Pinjam Pakai Kawasan Hutan (IPPKH). IPPKH adalah penggunaan atas sebagian kawasan hutan kepada pihak lain untuk kepentingan pembangunan di luar kegiatan kehutanan tanpa mengubah status, peruntukan dan fungsi kawasan tersebut.</p>
+<p style="text-align: justify;">Penggunaan kawasan hutan walaupun tidak mengubah status, peruntukan dan fungsi kawasan tersebut tetapi pasti mengubah kondisi vegetasi bahkan bisa mengubah bentangan lahannya. Sebagai timbal balik dari berubahnya kondisi tersebut, pemilik ijin penggunaan kawasan hutan diwajibkan untuk melakukan rehabilitasi pada daerah aliran sungai dengan luasan minimal sama dengan luas ijin penggunaannya. Penanaman bagi Pemegang IPPKH dalam rangka Rehabilitasi Daerah Aliran Sungai yang selanjutnya disebut Penanaman Rehabilitasi DAS adalah penanaman di dalam dan di luar kawasan hutan yang merupakan salah satu kewajiban pemegang Izin Pinjam Pakai Kawasan Hutan sebagai upaya untuk memulihkan, mempertahankan dan meningkatkan fungsi daerah aliran sungai sehingga daya dukung, produktivitas dan peranannya dalam mendukung sistem penyangga kehidupan tetap terjaga.</p>
+<p style="text-align: justify;">Bertepatan dengan HUT Kabupaten Sumbawa ke-59, Balai KPH Ropang, bersama dengan PT. Sumbawa Jutaraya, perusahaan tambang emas yang beroperasi di wilayah bagian selatan Sumbawa dan PT. XL Axiata di wilayah Sumbawa, melaksanakan penanaman perdana sebagai bentuk pemenuhan kewajiban kedua perusahaan pemegang ijin IPPHK tersebut. Lokasi penananaman dalam rangka Rehabilitasi DAS PT. Sumbawa Jutaraya dan PT. XL Axiata berada wilayah DAS Moyo yang merupakan DAS Prioritas Nasional yang harus dipulihkan. Secara administrasi pemerintahan, lokasi tersebut termasuk dalam Wilayah Desa Mama, Kecamatan Lopok, Kabupaten Sumbawa. Berada pada Kelompok Hutan Dodo Jaran pusang (RTK. 64) di Blok HL Pemanfaatan wilayah kelola Balai Kesatuan Pengelolaan Hutan (KPH) Ropang. Acara ini dihadiri oleh Wakil Bupati Sumbawa, Ketua DPRD Sumbawa, Kepala BLH Kabupaten Sumbawa, dan Kepala Dinas LHK Provinsi NTB.</p>
+<p style="text-align: justify;">Kepala Balai KPH Ropang, H. Sukirman Sindu Siregar menyampaikan bahwa, pemegang IPPKH yang berada di Sumbawa adalah perusahaan yang berkomitmen tinggi dalam melaksanakan salah satu kewajibannya untuk melakukan rehabilitasi DAS. Para pemegang ijin ini akan melaksanakan penanaman rehabilitasi DAS sebelum berakhirnya jangka waktu IPPKH mereka sebagaimana ketentuan yang berlaku. PT. SJR akan melaksanakan rehabilitasi seluas 1.100 Ha selama 7 tahun (2017-2023). Ditahun pertama dilakukan penanaman seluas 28 Ha dengan jumlah pohon sebanyak 33.880 batang. PT. XL Axiata akan melakukan penanaman seluas 6 Ha dengan jumlah pohon sebanyak 7.260 batang.</p>

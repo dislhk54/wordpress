@@ -1,0 +1,25 @@
+---
+ID: 1260
+post_title: >
+  Penilaian Lomba Wana Lestari di Balai
+  KPH Sejorong Matayang Brang Rea
+author: dislhk
+post_excerpt: ""
+layout: post
+permalink: >
+  https://dislhk.ntbprov.go.id/2017/05/22/penilaian-lomba-wana-lestari-di-balai-kph-sejorong-matayang-brang-rea/
+published: true
+post_date: 2017-05-22 13:55:00
+---
+<p style="text-align: justify;">Dukungan dan partisipasi masyarakat luas terhadap upaya rehabilitasi/konservasi sumberdaya alam perlu diberikan apresiasi dan penghargaan baik oleh pemerintah pusat maupun daerah guna terus memacu dan meningkatkan motivasi dan partisipasi masyarakat dalam mensukseskan kebijakan prioritas pembangunan bidang kehutanan.</p>
+<p style="text-align: justify;">Pemberian penghargaan tersebut dilaksanakan melalui kegiatan Lomba Wana Lestari. Pemberian penghargaan ini didasarkan atas prestasi yang dicapai dalam berbagai kegiatan yang berkaitan dengan upaya rehabilitasi lahan dan konservasi sumberdaya alam. Pemenang lomba merupakan unsur aparat pemerintah dan masyarakat. Sasaran kegiatan lomba wana lestari adalah kelompok tani, pelaku usaha, masyarakat&nbsp; dan aparat pemerintah yang terdiri dari :</p>
+
+<ol style="text-align: justify;">
+ 	<li>Penyuluh Kehutanan (PK) : Penyuluh Kehutanan PNS yang telah berprestasi dalam upaya penyuluhan pembangunan kehutanan.</li>
+ 	<li>Kelompok Tani Hutan atau Kelompok Tani Penghijauan (KTH/KTP): Kelompok Tani Hutan yang telah berjasa dalam pembangunan kehutanan.</li>
+ 	<li>Penyuluh Kehutanan Swadaya Masyarakat (PKSM) : Perorangan yang berjasa dalam melestarikan hutan dan lingkungan, secara swadaya menggerakkan serta memotivasi masyarakat melakukan penanaman dan konservasi tanah dan air di wilayahnya.</li>
+</ol>
+<p style="text-align: justify;">Penilaian lomba dilakukan secara berjenjang dari tingkat Kesatuan Pengelolaan Hutan (KPH), lalu ke Provinsi dan selanjutnya ke tingkat Nasional. Pemenang lomba Wana Lestari tingkat Kesatuan Pengelolaan Hutan (KPH) yang telah ditetapkan melalui Keputusan Kepala KPH setempat diusulkan oleh Kesatuan Pengelolaan Hutan (KPH) diusulkan untuk diikut sertakan pada penilaian tingkat provinsi . Pemenang I lomba wana Lestari&nbsp; tingkat Provinsi yang telah ditetapkan melalui Keputusan Gubernur diusulkan oleh Dinas Lingkungan Hidup dan Kehutanan Provinsi diusulkan untuk diikut sertakan pada penilaian lomba tingkat nasional.</p>
+<p style="text-align: justify;">Penilaian Lomba Wana Lestari tahun 2017 diikuti oleh peserta perwakilan dari KPH, lain halnya dengan tahun-tahun sebelumnya peserta lomba Wana Lestari diikuti oleh kabupaten/kota. Tahun 2017 ada 11 KPH yang ada Di Dinas Lingkungan Hidup dan Kehutanan namun yang mengikuti lomba wana lestari hanya 6 KPH diantaranya adalah KPH Rinjani Barat (Penyuluh Kehutanan PNS,PKSM dan KTH), KPH Rinjani Timur (Penyuluh Kehutanan PNS,PKSM dan KTH), KPH Sejorong mataiyang (Penyuluh Kehutanan PNS,PKSM dan KTH), KPH Ropang (Penyuluh Kehutanan PNS,PKSM dan KTH), KPH Orong Telu Brang Beh (Penyuluh Kehutanan PNS,PKSM dan KTH) dan KPH Mario Danggamasa (Kelompok Tani Hutan). Penilaian lomba Wana Lestari tahun 2017 mengikuti peraturan Menteri Lingkungan Hidup dan Kehutanan nomor :&nbsp; P.43/Menlhk/Sekjen/Kum.1/5/2016. Selanjutnya yang menjadi kewenangan BP2SDM kehutanan adalah kategori Penyuluh kehutanan PNS, Penyuluh Kehutanan Swadaya Masyarakat (PKSM) dan Kelompok Tani Hutan (KTH).</p>
+<p style="text-align: justify;">Tim penilai dari provinsi sebagai penilai bagi peserta tingkat KPH melakukan kunjungan ke Balai KPH Sejorong Matayang Brang Rea. BKPH Sejorong Matayang Brang Rea Kabupaten Sumbawa Barat pada awalnya berencana mengikutsertakan 3 kategori yaitu kategori penyuluh kehutanan PNS, penyuluh kehutanan swadaya masyarakat dan kelompok tani hutan. Namun untuk kelompok tani hutan tidak jadi diikut sertakan karena terbenturnya waktu penilaian dengan kegiatan yang diikuti oleh ketua kelompok tani hutan Sahabat Bumi yang sedang mengikuti kegiatan Pekan Nasional (PENAS XVI) di Aceh. Persipan dari ketiga kategori ini sudah disiapkan sebelumnya oleh Kabupaten Sumbawa Barat. Sehingga saat tim penilai dari Provinsi tinggal melakukan verifikasi penilaian yang dilakukan oleh tim penilai kabupaten. Saat penilaian yang dilakukan, tim provinsi diterima oleh semua penyuluh yang ada di KPH Sejorong Matayang Brang Rea, Kepala Seksi serta tenaga Bakti Rimbawan.</p>
+<p style="text-align: justify;">Sistem penilaian dilakukan dengan cara tanya jawab yang disesuaikan dengan kuisioner yang ada di pedoman wana lestari sesuai dengan peraturan Menteri Lingkungan Hidup dan Kehutanan nomor:&nbsp; P.43/Menlhk/Sekjen/Kum.1/5/2016. Tanya jawab dari peserta juga dilengkapi dengan data, dokumentasi kegiatan serta laporan-laporan. Semua itu dikumpulkan sebagai bahan penilaian dan dihitung sehingga diskor kemudian diajukan oleh tim penilai provinsi pada rapat untuk rangking dan diputuskan untuk nominasi tingkat provisni yang akan mewakili provinsi NTB pada tingkat Nasional. <strong>(aya/lil)</strong></p>

@@ -1,0 +1,12 @@
+---
+ID: 1466
+post_title: Video
+author: dislhk
+post_excerpt: ""
+layout: page
+permalink: https://dislhk.ntbprov.go.id/video/
+published: true
+post_date: 2017-10-30 15:10:35
+---
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8kE_AuO7Dnw" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe><iframe src="https://www.youtube.com/embed/FS2UUZdsPZI" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen">&amp;lt;span data-mce-type="bookmark" style="display: inline-block; width: 0px; overflow: hidden; line-height: 0;" class="mce_SELRES_start"&amp;gt;﻿&amp;lt;/span&amp;gt;</iframe><iframe src="https://www.youtube.com/embed/51tsYhL1Vmg" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen">&amp;amp;amp;lt;span data-mce-type="bookmark" style="display: inline-block; width: 0px; overflow: hidden; line-height: 0;" class="mce_SELRES_start"&amp;amp;amp;gt;﻿&amp;amp;amp;lt;/span&amp;amp;amp;gt;</iframe><iframe src="https://www.youtube.com/embed/PrVgB13EdgA" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen"></iframe><iframe src="https://www.youtube.com/embed/j64wdG_3rPc" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen"></iframe><iframe src="https://www.youtube.com/embed/Hx0fScn7S-c" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen"></iframe><iframe src="https://www.youtube.com/embed/sF5GnQAo5S0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen"></iframe><iframe src="https://www.youtube.com/embed/GeIPFfv-TSY?rel=0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen"></iframe><iframe src="https://www.youtube.com/embed/iyG6_R7u_3c?rel=0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen"></iframe><iframe src="https://www.youtube.com/embed/13tCP29UsFk?rel=0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen"></iframe><iframe src="https://www.youtube.com/embed/7ehBAAiS06A?rel=0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen"></iframe><iframe src="https://www.youtube.com/embed/Cl1Rid0K1Cg?rel=0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen"></iframe>
+<iframe src="https://www.youtube.com/embed/3AjfRs34zy0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen"></iframe>

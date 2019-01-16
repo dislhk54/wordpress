@@ -1,0 +1,20 @@
+---
+ID: 1492
+post_title: >
+  Aksi Bersih Pantai Bersama Dinas LHK
+  Provinsi NTB
+author: dislhk
+post_excerpt: ""
+layout: post
+permalink: >
+  https://dislhk.ntbprov.go.id/2017/12/14/aksi-bersih-pantai-bersama-dinas-lhk-provinsi-ntb/
+published: true
+post_date: 2017-12-14 18:48:16
+---
+<p style="text-align: justify;">Dalam rangka mendukung dan memasifkan Gerakan Indonesia Bersih sebagaimana telah dicanangkan Pemerintah RI melalui Inpres No 12 tahun 2016, Dinas Lingkungan Hidup dan Kehutanan Provinsi NTB menggelar kegiatan aksi bersih pantai yang bertajuk “NTB Gemilang mendukung Gerakan Indonesia Bersih” di kawasan wisata Pantai Senggigi, pada tanggal 6 Desember 2017 yang lalu.</p>
+<p style="text-align: justify;">Kegiatan ini selain bertujuan menggalang aksi nyata para pihak untuk mendukung Gerakan Indonesia Bersih, juga untuk menggaungkan pada dunia bahwa NTB menyatakan perang terhadap sampah laut (marine debris), mengingat isu tersebut akhir-akhir ini sangat menyudutkan posisi negara kita yang diklaim sebagai negara penyumbang sampah laut kedua terbanyak di dunia. Isu ini dikhawatirkan akan berimplikasi negatif pada berbagai hal terutama pada posisi pariwisata kita yang telah mendunia sebagai World Best Halal Destination dan berbagai keunggulan lainnya. Disamping tujuan politis tersebut, kegiatan Aksi Bersih Pantai ini bermaksud untuk memberikan edukasi kepada masyarakat tentang bagaimana seharusnya mengelola sampah-sampah agar tuntas di darat dan jangan sampai masuk ke laut.</p>
+<p style="text-align: justify;">Melalui kegiatan Aksi Bersih Pantai ini Pemerintah Provinsi NTB ingin menumbuhkan rasa kebersamaan antara pemerintah, masyarakat, relawan pegiat lingkungan dan dunia usaha peduli untuk saling berkolaborasi dalam mengatasi permasalahan sampah dan memahami bahwa sampah adalah tanggung jawab semua pihak. Demikian arahan yang disampaikan Kepala Dinas Lingkungan Hidup dan Kehutanan Provinsi NTB, Ir. Madani Mukarom, Bsc.F, M.Si dalam sambutannya pada acara Aksi Bersih Pantai tersebut. Disampaikan pula apresiasi yang tinggi dan ucapan terima kasih kepada para pihak yang mendukung terselenggaranya acara ini antara lain: PT Pertamina, PT PLN, Hotel Santosa, Hotel Puri Indah, Hotel Sheraton, Himpunan Alumni Fahutan IPB, Dinas LH Kabupaten Lombok Barat serta masyarakat Desa Senggigi yang telah berpartisipasi dalam kegiatan kolaborasi Aksi Bersih Pantai - NTB Gemilang ini.</p>
+<p style="text-align: justify;">Acara kemudian dilanjutkan dengan menggelar Kampanye Hijau yang menyuarakan orasi singkat dari perwakilan parapihak tentang isu-isu utama lingkungan mulai dari isu lokal hingga global, yang tujuannya untuk menggugah semangat kita untuk tetap menjaga dan melestarikan lingkungan baik di darat laut dan semesta alam.</p>
+<p style="text-align: justify;">Mulainya Aksi Bersih Pantai ditandai dengan penekanan tombol sirine oleh Kepala Dinas LHK Provinsi NTB, seiring dengan menyebarnya seluruh peserta untuk mengumpulkan sampah di sepanjang ruas pantai antara Sheraton Hotel sampai dengan Kila Hotel. Sampah-sampah yang terkumpul kemudian ditimbang. Empat peserta pengumpul sampah terbanyak mendapatkan hadiah 3 sepeda serta voucher menginap di hotel. Selain itu pengundian berbagai doorprize menarik juga mewarnai kemeriahan aksi bersih pantai.</p>
+<p style="text-align: justify;">Total sampah yang terkumpul dari seluruh peserta kurang lebih sebanyak 2 kontainer. Peserta Juara satu berhasil mengumpulkan sampah sebanyak 44 kg dalam 4 koli, juara kedua sebanyak 32 kg dalam 4 koli, juara ketiga total sampah sebanyak 28 kg dalam 4 koli dan Juara keempat sebanyak 28 kg dalam 3 koli.</p>
+<p style="text-align: justify;">Aksi bersih ini diharapkan dapat menjadi motivasi bagi semua orang untuk melakukan pengelolaan sampah secara terus-menerus, tidak berhenti sampai di sini saja, mengingat sampah akan terus diproduksi selama kehidupan manusia berlangsung. <strong>(uyu)</strong></p>
